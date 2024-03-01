@@ -1,1 +1,1 @@
-living by ongoing freedom from distress and worry.
+living by ongoing freedom from distress and worry
